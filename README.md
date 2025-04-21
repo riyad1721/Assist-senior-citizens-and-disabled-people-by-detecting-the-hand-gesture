@@ -1,0 +1,1 @@
+# Assist-senior-citizens-and-disabled-people-by-detecting-the-hand-gesture
